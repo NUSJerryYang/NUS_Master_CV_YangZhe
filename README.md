@@ -1,2 +1,2 @@
-# NUS_Master_CV_YangZhe
-NUS_Master_CV_YangZhe
+# NUS_Master_CV_and_Portfolio_YangZhe
+NUS_Master_CV_and_Portfolio_YangZhe
